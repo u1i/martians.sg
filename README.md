@@ -4,7 +4,6 @@
 
 ![](m3.png)
 
-[Join The Group](https://www.meetup.com/The-Martians/)
 
 ## About Us
 
