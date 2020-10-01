@@ -15,6 +15,8 @@ Have you ever felt like you lived in your own timezone? You could be a solo foun
 
 ## Connect with us
 
+hello@martians.sg
+
 [Our Page on LinkedIn](https://www.linkedin.com/company/30963835)
 
 [Our YouTube Channel](https://www.youtube.com/channel/UCTEeHqSVYES0BNS_yaGgvcQ)
